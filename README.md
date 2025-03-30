@@ -1,7 +1,7 @@
 
-
-
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31b2axjveg7jyxuxmzjrnxaxi3my&cover_image=true&theme=novatorem&show_offline=false&background_color=2a1a40&interchange=true&bar_color=c8cfb4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Montserrat&weight=200&pause=3000&color=E1E1E1&background=74468700&vCenter=true&repeat=false&random=true&width=435&lines=Be+polite+throw+piss+to+people.+)](https://git.io/typing-svg)
 ![Image](https://github.com/user-attachments/assets/ed17ca4f-9174-4bf3-922d-68c576ff02fe)
 
 ![Image](https://github.com/user-attachments/assets/55a89bb6-068a-416e-909b-0b1d6abe8bc0)
