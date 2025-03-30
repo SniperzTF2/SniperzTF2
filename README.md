@@ -1,4 +1,4 @@
-[![Hits](https://hits.sh/github.com/SniperzTF2.svg?style=plastic&label=%22Headshot.%22&extraCount=2017&color=770a0a&labelColor=440202)](https://hits.sh/github.com/SniperzTF2/)
+[![Hits](https://hits.sh/github.com/SniperzTF2.svg?style=flat-square&label=%22Headshot.%20%22&extraCount=2073&color=cbc89d&labelColor=4d2553)](https://hits.sh/github.com/SniperzTF2/)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31b2axjveg7jyxuxmzjrnxaxi3my&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=7a0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
