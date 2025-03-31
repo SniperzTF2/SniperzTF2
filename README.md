@@ -24,4 +24,10 @@
 . ♪ ° .  Tf2 Fandom int pls pls pls someone ALIVE? 
 
 #🥃 　 𓈒　 }   *I don't have a nickname, you can also call me Sniper or Medic because I like someone call me like that :3*
+
+› `` #🍂 *Oh! And I play roblox too! If you are interested? In it I just add Tfort2 but if you still want to be friends with me, I also say quite a bit*
+. *rbl name : Sniper*
+
+#*Same as CRK : [ I'm not going to put it here yet ]*
+
 ![Image](https://github.com/user-attachments/assets/e8129bc3-abc0-4342-aeb5-f6bf96f4709d)
