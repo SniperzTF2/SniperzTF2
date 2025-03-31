@@ -15,6 +15,8 @@
 
 #⁺✚　 𓈒　 *I very rarely online in pony town, if so it's just afk because I'm busy*
 
+ˊˊˊ .  𖥔 *I prefer to speak English rather than my main language, so if you like to speak English then I am very comfortable*
+
 . 𓏏𓏏 I just like Sniper and Medic from Tf2 [ I don't ship them,  just think they're close friends]
 
 ± .   Toxic people, Racism, color discrimination —> Block
