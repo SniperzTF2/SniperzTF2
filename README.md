@@ -7,15 +7,19 @@
 ![Image](https://github.com/user-attachments/assets/55a89bb6-068a-416e-909b-0b1d6abe8bc0)
 
 𝄃𝄀⠀ ［✚］⠀ ⎯⎯⠀. *Don't steal ideas, or reference my styles and skin* , 
-*C+H for me is not welcome*
+*C+H for me is not welcome [now]*
 
 ᛝ I would be annoyed if you brought my favorite fandom character out for a joke/SexJoke 
+
+· . _ #  Im 20y btw/Boy
 
 #⁺✚　 𓈒　 *I very rarely online in pony town, if so it's just afk because I'm busy*
 
 . 𓏏𓏏 I just like Sniper and Medic from Tf2 [ I don't ship them,  just think they're close friends]
 
 ± .   Toxic people, Racism, color discrimination —> Block
+
+. ♪ ° .  Tf2 Fandom int pls pls pls someone ALIVE? 
 
 #🥃 　 𓈒　 }   *I don't have a nickname, you can also call me Sniper or Medic because I like someone call me like that :3*
 ![Image](https://github.com/user-attachments/assets/e8129bc3-abc0-4342-aeb5-f6bf96f4709d)
