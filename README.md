@@ -34,6 +34,6 @@
 ![Image](https://github.com/user-attachments/assets/e8129bc3-abc0-4342-aeb5-f6bf96f4709d)
 
 ![Image](https://github.com/user-attachments/assets/c7c2dd51-32cb-4447-806a-ff740bae3894) 
-![Image](https://github.com/user-attachments/assets/3a33bca9-9d25-4d68-8b3a-437f212b9204)![Image](https://github.com/user-attachments/assets/0728d9dc-1026-45cc-8ef2-d0c14f497a3c)
+![Image](https://github.com/user-attachments/assets/3a33bca9-9d25-4d68-8b3a-437f212b9204)
 
 *My Tf2 gang. <3*
