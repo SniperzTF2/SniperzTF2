@@ -32,3 +32,5 @@
 #*Same as CRK : [ I'm not going to put it here yet ]*
 
 ![Image](https://github.com/user-attachments/assets/e8129bc3-abc0-4342-aeb5-f6bf96f4709d)
+
+![Image](https://github.com/user-attachments/assets/c7c2dd51-32cb-4447-806a-ff740bae3894) *My Tf2 gang. <3*
