@@ -7,7 +7,7 @@
 ![Image](https://github.com/user-attachments/assets/55a89bb6-068a-416e-909b-0b1d6abe8bc0)
 
 𝄃𝄀⠀ ［✚］⠀ ⎯⎯⠀. *Don't steal ideas, or reference my styles and skin* , 
-*C+H for me is not welcome [now]*
+*C+H for me is welcome [now]*
 
 ᛝ I would be annoyed if you brought my favorite fandom character out for a joke/SexJoke 
 
