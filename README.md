@@ -27,9 +27,11 @@
 
 › `` #🍂 *Oh! And I play roblox too! If you are interested? In it I just add Tfort2 but if you still want to be friends with me,I'm afraid to talk*
 
+my fandom : TF2, LMK, AOUAD
+
 . *rbl name : Sniper*
 
-#*Same as CRK : [ I'm not going to put it here yet ]*
+#*Not playing crk anymore*
 
 ![Image](https://github.com/user-attachments/assets/e8129bc3-abc0-4342-aeb5-f6bf96f4709d)
 
