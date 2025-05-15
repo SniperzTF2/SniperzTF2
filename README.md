@@ -6,18 +6,18 @@
 
 ![Image](https://github.com/user-attachments/assets/55a89bb6-068a-416e-909b-0b1d6abe8bc0)
 
-𝄃𝄀⠀ ［✚］⠀ ⎯⎯⠀. *Don't steal ideas, or reference my styles and skin* , 
+𝄃𝄀⠀🩹 ［✚］⠀ ⎯⎯⠀. *Don't steal ideas, or reference my styles and skin* , 
 *C+H for me is welcome [now]*
 
 ᛝ I would be annoyed if you brought my favorite fandom character out for a joke/SexJoke 
 
-· . _ #  Im 20y btw/Boy
+· 👾 . _ #  Im 20y btw/Boy
 
-#⁺✚　 𓈒　 *I very rarely online in pony town, if so it's just afk because I'm busy*
+#⁺✚　💉🩸  𓈒　 *I very rarely online in pony town, if so it's just afk because I'm busy*
 
 ˊˊˊ .  𖥔 *I prefer to speak English rather than my main language, so if you like to speak English then I am very comfortable*
 
-. 𓏏𓏏 I just like Sniper and Medic from Tf2 [ I don't ship them,  just think they're close friends]
+. 💜 𓏏𓏏 I just like Sniper and Medic from Tf2 [ I don't ship them,  just think they're close friends]
 
 ± .   Toxic people, Racism, color discrimination —> Block
 
