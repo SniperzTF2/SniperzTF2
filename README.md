@@ -11,7 +11,7 @@
 
 ᛝ I would be annoyed if you brought my favorite fandom character out for a joke/SexJoke 
 
-· 👾 . _ #  Im 20y btw/Boy
+· 👾 . _ #  Im 20y btw
 
 #⁺✚　💉🩸  𓈒　 *I very rarely online in pony town, if so it's just afk because I'm busy*
 
